@@ -1,4 +1,4 @@
-![alt text](https://i.imgur.com/Vqiy4pK.png)
+![alt text](ESCR.png)
 
 - 👋 Hi, I’m @RYU (From Czechia) </li>
 - 👀 I’m interested in discovering new ways.</li>
